@@ -1,0 +1,1 @@
+# SuicideShop.github.io
